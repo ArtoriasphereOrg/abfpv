@@ -1,4 +1,4 @@
-![Nuke](https://image.abfpv.workers.dev/2b5e9aec33ec8e37121ff7bd9b060019782d01edde95ee7f561d1ef7d182a4bb.jpg)
+![Nuke](https://tse2.mm.bing.net/th/id/OIP.xBLQ0TH5m82Mjd_UXxvqkwHaEL?rs=1&pid=ImgDetMain&o=7&rm=3)
 
 # ABFPV - Always Best Free Packed Vault
 
